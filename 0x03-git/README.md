@@ -1,1 +1,1 @@
-My name is Ti-Jesub and I can do all things
+My name is Ti-Jesu and I can do all things
